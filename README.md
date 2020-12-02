@@ -1,4 +1,8 @@
 # OhMyQR v1.0
+##FOLLOW THESE STEPS:
+
+https://laptrinhx.com/hack-whatsapp-of-your-friend-by-sending-a-single-link-81813896/
+
 ## Author: github.com/thelinuxchoice
 ## IG: instagram.com/thelinuxchoice
 ### Don't copy this code without give me the credits, nerd! 
